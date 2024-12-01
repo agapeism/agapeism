@@ -4,7 +4,7 @@
 <div>
 <br>
 </div>
-  <h3> COMEDY . . . or AZRIEL . 
+  <h3> COMEDY / AZRIEL . 
   </div>
 <div align="center">
 <br>
@@ -24,11 +24,13 @@
 <img src="https://files.catbox.moe/yo1w4t.png" width="100%" height="auto">
 <div>
 </div>
-<h4> INTERESTS ..
+</h6> INTERESTS ..
 
 </div align="center">
 <h6> my MAIN interests are Marutoku's works (ZENO, No Salvation, SHTDN), Alien Stage, Okegom, and FNAFHS. (I like Enstars too i GUESS ://)
 </div>
+  <div align="center">
+  <br>
 <h4> ILY !
 <div align="center">
   <h6> < SATYR, SAINT, ANGELICA, LUCIEL, BOWEN, MID, THING, ENVER, BEE, IVLIS, MILO, TACO, MIA 3
@@ -36,6 +38,9 @@
 <div>
 <br>
 </div>
+
+</h6> this is prone to change i have no idea how github works
+
 <br>
 <br>
 <br>
