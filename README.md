@@ -19,6 +19,8 @@
 <h6> idc for discourse i think it's rly corny
 <h6> i do not use tone tags
 <h6> osc limited int most of you are kinda . sensitive .
+<h6> i have an unknown heart condition and i am open about it. if that makes u uncomfortable idk what to tell u
+
 <br>
 <div>
 <img src="https://files.catbox.moe/yo1w4t.png" width="100%" height="auto">
