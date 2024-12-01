@@ -19,7 +19,7 @@
 <h6> idc for discourse i think it's rly corny
 <h6> i do not use tone tags
 <h6> osc limited int most of you are kinda . sensitive .
-<h6> i have an unknown heart condition and i talk openly about it. if that makes u uncomfortable idk what to tell u
+<h6> i have an unidentified (possibly hereditary) heart condition and i talk openly about it. if that makes u uncomfortable idk what to tell u
 
 <br>
 <div>
