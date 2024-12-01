@@ -15,7 +15,7 @@
 <br>  
 <h6>they  /  it  
 <h6> whisper to interact , i am mostly offtab .
-<h6> on that note , PLEASE INTERACT ! i love making friends ! ᵔᴗᵔ
+<h6> on that note , PLEASE INTERACT ! i love making friends ! ᵔᴗᵔ (c+h OK!)
 <h6> idc for discourse i think it's rly corny
 <h6> i do not use tone tags
 <h6> osc limited int most of you are kinda . sensitive .
