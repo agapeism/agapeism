@@ -29,7 +29,7 @@
 </h6> INTERESTS ..
 
 </div align="center">
-<h6> my MAIN interests are Marutoku's works (ZENO, No Salvation, SHTDN), Alien Stage, Lifesteal, Unstable Universe, Okegom, and FNAFHS. (I like Enstars too i GUESS ://)
+<h6> my MAIN interests are Marutoku's works (ZENO, No Salvation, SHTDN), Alien Stage, Lifesteal, Unstable Universe, Okegom, and FNAFHS. (I like Enstars too i GUESS)
 </div>
   <div align="center">
   <br>
