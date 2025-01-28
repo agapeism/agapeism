@@ -35,7 +35,7 @@
   <br>
 <h4> ILY !
 <div align="center">
-  <h6> < SATYR, SAINT, ANGELICA, YVES, BOWEN, MID, THING, GRIF, BEE, IVLIS, MILO, TACO, MIA 3
+  <h6> < SATYR, SAINT, ANGELICA, YVES, MID, LEX, GRIF, SHIRO 3
 
 <div>
 <br>
