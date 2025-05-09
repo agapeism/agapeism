@@ -1,7 +1,4 @@
-- to be 100% clear, i dont think you should harrass people over things that arent real
-
-  
-dont talk to me about any form of discourse im not miserable
+  dont talk to me about any form of discourse im employed
 
 
                 byi
